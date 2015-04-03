@@ -1,2 +1,2 @@
-# StockSwipe
-a webapp that manipulates financial data with a leap motion controlled
+ƒË9V&7WT€¶:
+%,
